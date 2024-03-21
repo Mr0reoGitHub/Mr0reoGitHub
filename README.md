@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Mr0reoGitHub
 - 👀 I’m interested in Web Development, Gaming, Coding and many other things
-- 🌱 I’m currently learning MCA course
+- 🌱 I’m currently Pursuing MCA course
 - 📫 How to reach me mr0reo773@gmail.com
 - ⚡ Fun fact: hmm..
 
